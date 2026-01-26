@@ -1,2 +1,1 @@
-# ohyea
-github is a weird site
+whats with these homies dissing my girl
